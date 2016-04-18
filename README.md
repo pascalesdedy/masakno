@@ -1,0 +1,3 @@
+# masakno
+Masakno iki mak .. 
+Keeps Learning, never stop...
